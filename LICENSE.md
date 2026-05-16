@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Vegas Pro for PC | Vegas Pro for Windows transition with Vegas Pro for PC | Vegas Pro for Windows instant Transition: slow-motion & timeline-editing. Featuring
 
 
 
